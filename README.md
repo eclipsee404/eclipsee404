@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @eclipsee404
 - 👀 I’m interested in Web Programming
-- 🏗️ I’m currently work as Application Development Specialist in a public company at Jakarta
 - 🔗 Instagram : @eclipse_404
 - 📫 How to reach me eclipsee404@gmail.com send PM
 
